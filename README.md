@@ -1,9 +1,10 @@
 # my_addons
 
 
-![image](https://github.com/shigeyukey/my_addons/assets/124401518/f44b8fef-c38a-4546-aa44-8fa611d3580d)
 
 
+
+![image](https://github.com/shigeyukey/my_addons/assets/124401518/66e8656f-a03f-48d9-a7ea-5e11752d3154)
 
 
 ![banner_TidyAnkiBear](https://github.com/shigeyukey/my_addons/assets/124401518/aeb983e5-d5b0-4105-b32a-ed5b9a02f41b)
