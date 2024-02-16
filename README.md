@@ -13,3 +13,6 @@
 
 
 ![image](https://github.com/shigeyukey/my_addons/assets/124401518/46372167-16bb-48d5-9cc3-1e6c9d3e901d)
+
+
+![dict4Anki_banner (2)](https://github.com/shigeyukey/my_addons/assets/124401518/b9a7f75d-033f-4653-8093-1d5c393434d6)
