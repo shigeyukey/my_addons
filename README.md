@@ -16,3 +16,7 @@
 
 
 ![dict4Anki_banner (2)](https://github.com/shigeyukey/my_addons/assets/124401518/b9a7f75d-033f-4653-8093-1d5c393434d6)
+
+
+![FixmedProgressbar](https://github.com/shigeyukey/my_addons/assets/124401518/e33d32be-2bd7-4686-8aa2-1084d3a0fe79)
+
