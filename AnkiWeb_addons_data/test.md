@@ -1,5 +1,3 @@
-
-
 <br>
 
 If you like this add-on, please [rate this!👍](https://ankiweb.net/shared/review/■)
