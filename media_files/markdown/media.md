@@ -1,4 +1,9 @@
 
+
+
+![Please rate this](https://github.com/shigeyukey/my_addons/assets/124401518/5fc3fa79-e6b4-46ec-97ca-200f6869ab69)
+
+
 ![Patreon_banner](https://github.com/shigeyukey/my_addons/assets/124401518/12cc529e-1713-4aeb-a758-bc1ae403dc0c)
 
 
