@@ -1,5 +1,10 @@
 
 
+![patreon new cards farm 2](https://github.com/shigeyukey/my_addons/assets/124401518/89a85274-5c9d-4fec-8e8a-148dc22bd548)
+
+
+
+
 ![image](https://github.com/shigeyukey/my_addons/assets/124401518/20cffe41-18b2-4e22-a923-98c49ccf7deb)
 
 
