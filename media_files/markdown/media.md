@@ -1,6 +1,28 @@
 
 
 
+
+![giphy](https://github.com/shigeyukey/my_addons/assets/124401518/60d6ea3d-216d-4c45-b97d-3f33800b87ac)
+
+![image](https://github.com/shigeyukey/my_addons/assets/124401518/6ea6ae36-c3c3-4103-bf6d-322a42489938)
+
+![image](https://github.com/shigeyukey/my_addons/assets/124401518/c4817860-498f-4ce0-9fb6-c02981baf517)
+
+![image](https://github.com/shigeyukey/my_addons/assets/124401518/f7ab6c8d-a6a5-482a-8240-b75f88155f51)
+
+
+![sync](https://github.com/shigeyukey/my_addons/assets/124401518/b06a9cfe-2966-4209-b269-9ea0927fc3cd)
+
+
+![image](https://github.com/shigeyukey/my_addons/assets/124401518/ab1a48ea-7b04-4e3d-bef3-195ad8134dfa)
+
+
+![image](https://github.com/shigeyukey/my_addons/assets/124401518/779d149a-7896-41c5-8799-88a8fa8ead06)
+
+
+![image](https://github.com/shigeyukey/my_addons/assets/124401518/113e32c8-e0cc-47b2-8e7c-b6bc23681d21)
+
+
 ![image](https://github.com/shigeyukey/my_addons/assets/124401518/0fa3a6e3-dfb6-4d01-8c4d-489217046195)
 
 
