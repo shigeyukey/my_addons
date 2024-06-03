@@ -1,5 +1,6 @@
 
 
+![335815467-c4817860-498f-4ce0-9fb6-c02981baf517](https://github.com/shigeyukey/my_addons/assets/124401518/3484b23a-7242-4525-99d4-58a2fb833002)
 
 
 ![anki_addon_demo_S_Allain](https://github.com/shigeyukey/my_addons/assets/124401518/7f25a6eb-4da7-4738-825e-93f491d8a18a)
