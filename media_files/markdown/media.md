@@ -1,5 +1,9 @@
 
 
+![Rearrange home addons (2)](https://github.com/shigeyukey/my_addons/assets/124401518/af591531-1653-4992-9dc9-475f692d05f5)
+
+
+
 ![image](https://github.com/shigeyukey/my_addons/assets/124401518/6eb1ccd9-bcd3-47d7-86b0-54b10f1cf19e)
 
 
