@@ -1,5 +1,9 @@
 
 
+[ How to use ] 🌱New Card Farm 2 - Growing Crops and Flowers (Anki Add-on, For Patrons Only)
+
+![new_card_farm_2_(01)_resize](https://github.com/user-attachments/assets/356da942-132f-4328-826f-61fefb34e627)
+
 
 This Add-on is a upgrade version of [the New Cards Farm](https://www.patreon.com/posts/how-to-use-new-0-105040125?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link).  You can grow crops and flowers with the new cards you have learned. Crops 79, Color tooltip, Farmer animation, Random Crops, Replanting Crops, etc.
 
