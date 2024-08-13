@@ -1,5 +1,12 @@
 
 
+![breakTimer](https://github.com/user-attachments/assets/843d28c3-c098-4e54-beef-0ac30ce9472c)
+
+![image](https://github.com/user-attachments/assets/8fc7c94b-11fb-4407-a8ce-703cc70da8a4)
+
+![image](https://github.com/user-attachments/assets/00816122-4b41-4694-8b95-40f873c0d36f)
+
+
 ![banner_AnkiPopup (2)](https://github.com/user-attachments/assets/cac2621a-71e9-4487-ada3-45cbf248e2ca)
 
 
