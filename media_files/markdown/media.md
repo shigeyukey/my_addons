@@ -1,6 +1,6 @@
 
 
-![banner_AnkiPopup](https://github.com/user-attachments/assets/4480ac35-898e-4e9e-be9b-bcacd8d773fd)
+![banner_AnkiPopup (2)](https://github.com/user-attachments/assets/cac2621a-71e9-4487-ada3-45cbf248e2ca)
 
 
 ![image](https://github.com/user-attachments/assets/81878075-796e-48a0-bae0-4f55975522e6)
