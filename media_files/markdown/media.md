@@ -1,4 +1,8 @@
 
+
+![banner_AnkiPopup](https://github.com/user-attachments/assets/4480ac35-898e-4e9e-be9b-bcacd8d773fd)
+
+
 ![image](https://github.com/user-attachments/assets/81878075-796e-48a0-bae0-4f55975522e6)
 
 
