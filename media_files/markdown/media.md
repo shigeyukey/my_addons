@@ -1,5 +1,8 @@
 
 
+![image](https://github.com/user-attachments/assets/164f6dd8-0c35-4d21-8881-37e38bbcd2e7)
+
+
 ![breakTimer](https://github.com/user-attachments/assets/843d28c3-c098-4e54-beef-0ac30ce9472c)
 
 ![image](https://github.com/user-attachments/assets/8fc7c94b-11fb-4407-a8ce-703cc70da8a4)
